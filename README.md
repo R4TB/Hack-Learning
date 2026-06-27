@@ -22,4 +22,4 @@ And congralations you are 50% people move on than 50% people that stop at this s
 
 you know what, sign that you recognized you are now different and move on : you know who you are on internet.
 
-# Note : "Sorry my if my grammars is really bad, cause i from Indonesia. Haha!" -R4TB-
+# Note : "Sorry if my grammars is really bad, cause i from Indonesia. Haha!" -R4TB-
